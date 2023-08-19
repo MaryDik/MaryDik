@@ -17,13 +17,13 @@
 Личные качества: критическое мышление, внимательность, кропотливость, любознательность, дисциплинированность, общительность, умение расставлять приоритеты, стремление к развитию и росту.
 
 ## Мои контакты:
-Почта 28907183@mail.ru
+**[Почта](28907183@mail.ru)**
 
-WhatsApp [написать](https://wa.me/+79114771614)
+**[WhatsApp](https://wa.me/+79114771614)**
 
-Telegram [написать](https://t.me/melle_mari)
+**[Telegram](https://t.me/melle_mari)**
 
-Резюме [cсылка](https://docs.google.com/document/d/1ZxT4oM_qW_dSDmNH_rKCWQsNMk7ZjM4UwisO57lxAzQ/edit)
+**[Резюме](https://docs.google.com/document/d/1ZxT4oM_qW_dSDmNH_rKCWQsNMk7ZjM4UwisO57lxAzQ/edit)**
 
 
 <!--
